@@ -1,0 +1,2 @@
+# LAB-5-TASKS
+3-7 SEM 1 MID 1
